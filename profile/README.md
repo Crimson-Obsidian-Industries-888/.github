@@ -1,4 +1,4 @@
 
 
-# Welcome to Crimson Obsidian Industries
+# Welcome to OkO Forge LLC DBA Crimson Obsidian Industries
 Thanks for stopping by and checking us out. We are currently getting our infrastructure built. Check back often as we add more artifacts. 
